@@ -1,2 +1,2 @@
 # V13_Altyapi
-ArdaDemr V13 Altyapı [glitch link](ttps://glitch.com/edit/#!/remix/v13altyapiardademr)
+Altyapıya glitchten ulaşmak için 👉 [Glitch link](https://glitch.com/edit/#!/remix/v13altyapiardademr)
